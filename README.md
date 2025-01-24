@@ -1,0 +1,6 @@
+![2025-01-23 20_11_25-](https://github.com/user-attachments/assets/b2fc6949-1954-4c5b-8546-d863ca4b828b)
+![2025-01-23 20_11_43-Mozilla Firefox](https://github.com/user-attachments/assets/025f7a48-797d-4ce5-bb7e-0a344b86815b)
+![2025-01-23 20_11_52-](https://github.com/user-attachments/assets/6e4313d7-b2f4-40ca-9dfd-7e76f83fdf64)
+![2025-01-23 20_12_18-](https://github.com/user-attachments/assets/2a14950c-0918-4ab0-b5c6-b2ebcaf0ecad)
+![2025-01-23 20_13_01-](https://github.com/user-attachments/assets/d6b60f3f-0dbf-483f-9374-e1b46d3fcf8a)
+![2025-01-23 20_13_27-Mozilla Firefox](https://github.com/user-attachments/assets/3a237b34-9d33-4da8-b17d-00dc8fbf1c63)
